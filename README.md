@@ -1,2 +1,2 @@
-# Manno.github.io
+# Mannozz.github.io
 personal website
